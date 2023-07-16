@@ -1,2 +1,2 @@
-# todo
-Create todo list app with react stack
+#TODO
+Simple todo
