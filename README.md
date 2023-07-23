@@ -1,2 +1,1 @@
-#TODO
-Simple todo
+learn truth love review happened huge potatoes voyage go fourth listen left organization very motor
