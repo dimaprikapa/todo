@@ -1,1 +1,1 @@
-pie bottom blew point look rock feel alike native complete electric fighting forth three condition
+rock carry large furniture memory troops string sometime alone importance ask recall page know among
