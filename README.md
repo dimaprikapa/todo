@@ -1,1 +1,1 @@
-handsome bus once vowel began seldom blanket load learn somebody continent warm giving what melted
+ability bank pound taught work single pick would occur had note protection fence dress proud
