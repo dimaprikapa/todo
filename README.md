@@ -1,1 +1,1 @@
-smaller any aware rocky yourself steel largest too taste also cloth some meant sort everywhere
+box attention softly wait date ill football dull follow music condition cool indicate government develop
