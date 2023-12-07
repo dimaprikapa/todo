@@ -1,1 +1,1 @@
-straight pound yes practical selection natural believed thank unknown news third rocky parent have feet
+adjective whole him more lose final school itself ship exclaimed mental war hide clay job
