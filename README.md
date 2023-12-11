@@ -1,1 +1,1 @@
-except hello feed life drop donkey gold rhyme nice conversation everything combine sunlight traffic might
+immediately previous person street close ear idea previous would package hospital find kind sound method
