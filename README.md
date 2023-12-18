@@ -1,1 +1,1 @@
-shape pick rose bean single swing drive stared mad specific sound hurt fish cry grew
+clothing chair score typical shoot spin determine hang sharp kitchen empty bare skin simply camera
