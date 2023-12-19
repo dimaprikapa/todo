@@ -1,1 +1,1 @@
-clothing chair score typical shoot spin determine hang sharp kitchen empty bare skin simply camera
+carefully purple away wild another class vapor pencil student unit writer upper tongue jump curve
